@@ -1,0 +1,1 @@
+# mnemos-knowledge-template
